@@ -26,4 +26,4 @@ Welcome to my corner on GitHub! I'm a second-year student from Russia, passionat
 
 ### 🌐 Connect with Me
 
-* [Email](sergibus71@outlook.com) * [Telegram](https://t.me/Kaban425) *
+* [Email](mailto:sergibus71@outlook.com) * [Telegram](https://t.me/Kaban425) *
